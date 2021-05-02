@@ -1,0 +1,1 @@
+# Newlife-SDA-Church-Narok
